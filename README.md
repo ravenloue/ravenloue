@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **anything. I love meeting new people and learning new things.**
 
-- 📫 How to reach me **@ ravenloue#8914 on discord**
+- 📫 How to reach me **@ ravenloue on discord**
 
 - ⚡ Fun fact **I just got my first pair of prescription glasses,**
 
